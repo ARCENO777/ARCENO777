@@ -1,5 +1,6 @@
 #sobre mim **Emilly**
-- 👋**Ola,eu sou @ARCENO777**
+- 👋**Ola,eu sou Emi*
+- :+1: O meu [ e-maill](ressel.emilly@escola.pr.gov.br) 
 - 👀 Eu estou interessada em aprender novas linguagens de programação
 - 🌱 Eu estou rcentemente aprendendo a programar na linguagem de java script e scratch
 - 💞️ I’m looking to collaborate on ...
