@@ -1,3 +1,6 @@
+![FLAMENGO](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSvEvdYdag0ZfA_jobSKTUMTSaHMl4-ubT5Xg&s).
+
+
 #sobre mim **Emilly**
 - 👋**Ola,eu sou Emi*
 - :+1: O meu [ e-maill](ressel.emilly@escola.pr.gov.br) 
@@ -6,9 +9,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+                          - ⚡ Fun fact: ...
 
-<!---
-ARCENO777/ARCENO777 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+., ,.    
+[[[[wçaãaaaaçlsdkfãlkalsklaksfçlsdkçldWDW
