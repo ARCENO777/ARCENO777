@@ -11,5 +11,4 @@
 - 😄 Pronouns: ...
                           - ⚡ Fun fact: ...
 
-., ,.    
-[[[[wçaãaaaaçlsdkfãlkalsklaksfçlsdkçldWDW
+
